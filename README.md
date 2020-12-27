@@ -1,1 +1,0 @@
-# tate-cow-arqzsmbr
